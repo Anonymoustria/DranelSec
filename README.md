@@ -1,2 +1,0 @@
-# vigilant-disco
-RechellejoyChavez
